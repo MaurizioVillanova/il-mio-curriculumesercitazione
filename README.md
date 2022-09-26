@@ -1,0 +1,2 @@
+# il-mio-curriculumesercitazione
+esercitazione
